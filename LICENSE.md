@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Adobe Photoshop for macOS brush with Adobe Photoshop for macOS custom Brush Pack - typography tools and smart objects. Featuring typography tools and smart
 
 
 
